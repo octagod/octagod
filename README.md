@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @octagod 
+- 👋 Hi, I’m @octagod (Formally known as Nicklaus or Owen 😒)
 - We have been abducted by aliens 👽
 
 <!---
